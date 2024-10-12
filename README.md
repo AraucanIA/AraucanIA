@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AraucanIA
 - 👀 I’m interested in make connections with automation professionals
-- 🌱 I’m currently bringing AI , Ads & Automation
+- 🌱 I’m currently bringing AI, Ads & Automation for businesses
 - 📫 How to reach me araucan.ia on socials
 - ⚡ Fun fact:
 
